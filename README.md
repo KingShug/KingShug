@@ -11,14 +11,14 @@ actually buy my components and hobble togather my first custom build. It was....
   I would tell myself "oh don't do that youll just suck" or "Why try if your just going to fail" <--(that ones a classic). It took along time to break myself
   of that toxic mindset and during that time I lost alot namely I lost track of my childhood dream.
 
-        I want to use computers to make something magical. 
+       I want to use computers to make something magical. 
 
-    I want to learn as much as I can to be a real programmer and to make magic, because lets be real thats what all this is programmers use magic words to 
-    make magic happen on the screen, even if we know how it happens dosn't nake it any less magical and wonderfull if anything the more I learn the more im filled 
-    with wonder. We live in a magical age and this field is evolving every day and I can't wait to join it!!!!
+   I want to learn as much as I can to be a real programmer and to make magic, because lets be real thats what all this is programmers use magic words to 
+   make magic happen on the screen, even if we know how it happens dosn't nake it any less magical and wonderfull if anything the more I learn the more im filled 
+   with wonder. We live in a magical age and this field is evolving every day and I can't wait to join it!!!!
 
-      Im so glad after all these years im finally finally putting my doubts aside and journying forth on this adventure ive got along way to go to catch up but,
-      look out im chasing after you full sprint.
+    Im so glad after all these years im finally finally putting my doubts aside and journying forth on this adventure ive got along way to go to catch up but,
+    look out im chasing after you full sprint.
 
       
     With love,
